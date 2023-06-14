@@ -8,3 +8,5 @@ I'll be releasing the hint for this clue on June 14th 12:00pm.
 If I messed up something just dm me
 
 HINT IS IN hint.png
+
+It's basically giving it away tbh, but thats okay
